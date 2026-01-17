@@ -1,1 +1,1 @@
-
+Trabajo efectuado a partir del artículo de investigación "Heavy metal distribution in dust from elementary schools in Hermosillo, Sonora, Me ́ xico" de la Dra Diana Meza, Maria Luisa De la Parra y Margarita de la O-Villanueva.
